@@ -8,5 +8,3 @@
 
 vitor.parreira@escola.pr.gov.br
 
-
-![](https://media.tenor.com/fH_ldxOQ0-UAAAAd/wheelie-nigel-sylvester.gif)
